@@ -1,0 +1,2 @@
+- Discord: SophiaX#7777
+- Email: Sophia@sophiax.me
